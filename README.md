@@ -1,2 +1,0 @@
-# Realestatetemplate.github.io
- 
